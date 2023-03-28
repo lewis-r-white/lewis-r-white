@@ -2,8 +2,9 @@
 
 <br>
 
-😄 Pronouns: he/him
-📝 Personal website: lewis-r-white.github.io
+😄 **Pronouns**: he/him
+
+📝 **Personal website**: lewis-r-white.github.io
 
 ### What am I up to?
 

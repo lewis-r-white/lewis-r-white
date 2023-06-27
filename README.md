@@ -21,7 +21,7 @@
 
 ### Experience
 
-- 2020–2020: Research advisor at dscout
+- 2020–2022: Research advisor at dscout
 
 
 
